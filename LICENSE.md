@@ -1,4 +1,4 @@
-# 
+# Código aberto Kaspersky Total Security ferramentas para Mac OS | Ultimato Kaspersky Total Security ferramentas para PC Windows. Com alertas de atividade suspeita e proteção de e-mail — otimizado para máximo desempenho em cada plataforma.
 
 
 
